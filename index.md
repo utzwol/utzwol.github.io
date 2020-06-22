@@ -6,3 +6,6 @@ A page about Rabt Trapiso and the complete Somycity universe including many othe
 * Helen His wife
 * Suei Their daugther
 
+Tervor always says:
+> Urgh
+
