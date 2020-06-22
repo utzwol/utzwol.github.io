@@ -9,3 +9,5 @@ A page about Rabt Trapiso and the complete Somycity universe including many othe
 Tervor always says:
 > Urgh
 
+<img src="https://images.freeimages.com/images/small-previews/1f8/delicate-arch-1-1391746.jpg"/>
+
